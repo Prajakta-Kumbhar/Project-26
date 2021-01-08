@@ -1,0 +1,1 @@
+A sandwich is a recipe which is cosidered "two or more slices of bread stuffed with a filling." 
